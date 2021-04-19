@@ -1,0 +1,1 @@
+Chocolate chips, milk, butter, brown sugar and granulated sugar, flour, eggs, vanilla extract, baking soda, hot water, and salt.
